@@ -222,4 +222,4 @@ Call of Dead: Modern Duty Hunter & Combat Trigger is offered as the full free ve
 Download Call of Dead: Modern Duty Hunter & Combat Trigger today and become humanity's last defense against the alien invasion!
 
 ---
-**Last updated:** 2026-10-22 21:58:20 UTC
+**Last updated:** 2026-10-23 00:22:39 UTC
